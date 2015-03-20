@@ -1,0 +1,1 @@
+trust # spartan-honer-
